@@ -1,0 +1,2 @@
+# fluffy-sniffle
+Violette was born in Vienna to Jewish parents who immigrated to the United States before World War II. Due to Nazi racial laws, she was forced to leave her university studies, was arrested by the Gestapo, managed to escape, and joined the partisans, where she met her red-haired lover. The novel is based on testimonies of survivors of the extermination camps, and although the names and places have been changed, the descriptions are accurate and based on survivors' testimonials      Email: 
